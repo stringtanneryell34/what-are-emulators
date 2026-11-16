@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Yuzu Emulator PC](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4f4LlPG)
+[![Download Yuzu Emulator PC](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -160,7 +160,7 @@
 
 <div align="center">
 
-[![Download Yuzu Emulator PC](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4f4LlPG)
+[![Download Yuzu Emulator PC](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -247,7 +247,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Yuzu Emulator PC](https://img.shields.io/badge/Get%20It%20Here-F1C40F?style=for-the-badge&logo=github)](https://bit.ly/4f4LlPG)
+[![Download Yuzu Emulator PC](https://img.shields.io/badge/Get%20It%20Here-F1C40F?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
