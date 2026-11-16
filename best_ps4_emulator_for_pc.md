@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4vWw2j4)
+[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -161,7 +161,7 @@
 
 <div align="center">
 
-[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4vWw2j4)
+[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -248,7 +248,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Get%20It%20Here-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4vWw2j4)
+[![Download Best PS4 Emulator for PC](https://img.shields.io/badge/Get%20It%20Here-FF6B9D?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
