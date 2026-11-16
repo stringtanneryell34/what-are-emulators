@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4fuwE9V)
+[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -82,7 +82,7 @@ PlayStation 5 games are amazing, but there's a problem:
 
 <div align="center">
 
-[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4fuwE9V)
+[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -172,7 +172,7 @@ PlayStation 5 games are amazing, but there's a problem:
 
 <div align="center">
 
-[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4fuwE9V)
+[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
@@ -258,7 +258,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4fuwE9V)
+[![Download Best PS5 Emulator for PC](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://share.google/o806ZhFIJ328yR4Et)
 
 </div>
 
